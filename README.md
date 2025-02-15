@@ -1,4 +1,4 @@
-I'm CLFlix, more commonly known as \_Kurookami\_. You won't see a lot of projects on here, except for one that I did in high school. Using this as a personal account as long as I'm studying.
+I'm CLFlix, more commonly known as \_Kurookami\_. As long as I'm studying, I'll probably be using this as more of a personal account, for personal projects.
 After my studies this may change to my main account for anything and everything.
 
 Interests: Currently learning Japanese
